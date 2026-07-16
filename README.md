@@ -1,2 +1,0 @@
-# SIGED-certificado-preparatoria-autenticacion-EIGO920622HMNSLR04
-EIGO920622HMNSLR04
